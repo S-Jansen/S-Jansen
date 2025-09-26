@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @S-Jansen
 - 👀 I’m interested in coding and videogames
-- 🌱 I’m currently learning software develepment and spanish
+- 🌱 I’m currently learning software develepment
 - 📫 How to reach me Sambal55555 on Discord
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm not gay
